@@ -1,1 +1,1 @@
-https://k34g2r8.github.io/M1NHAJ/
+https://k34g2r8.github.io/profile1
